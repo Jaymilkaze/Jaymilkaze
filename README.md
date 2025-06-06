@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Jaymilkaze
+- 👋 Hi, I’m @Jaymilkaze Emmanuel Williams
 - 👀 I’m interested in the Cyber Universe
-- 🌱 I’m currently learning ...ALOT
+- 🌱 I’m currently learning Cyber Security Roles ALOT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...He/him/his
